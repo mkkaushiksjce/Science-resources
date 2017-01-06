@@ -14,4 +14,4 @@ A list of interesting pages and videos to feed your brain
   4. [PHD Comics - Videos and animations about scinece and exploration](https://www.youtube.com/user/phdcomics/videos).
 
 ### Websites
-  1. [Scienceheroes -Wwebsite dedicated to scientist who have made life saving discoveries](http://scienceheroes.com/).
+  1. [Scienceheroes -Website dedicated to scientist who have made life saving discoveries](http://scienceheroes.com/).
